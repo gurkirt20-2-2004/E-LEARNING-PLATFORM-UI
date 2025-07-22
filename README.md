@@ -16,7 +16,14 @@ MENTOR : NEELA SANTOSH
 OUTPUTS:--
 
 
+![Image](https://github.com/user-attachments/assets/f84db2f2-24f4-48a3-a73d-652ff236d332)
 
+
+![Image](https://github.com/user-attachments/assets/0cd9a7b0-4bc3-4f86-b41a-222ce22bd154)
+
+
+
+![Image](https://github.com/user-attachments/assets/28d30059-dc7f-4759-9258-64953f4660ef)
 
 
 
